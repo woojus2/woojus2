@@ -1,4 +1,4 @@
-🍰 age : 28,<br><br>                                                
+🍰 age : 29,<br><br>                                                
 😆 mbti : ENFP,<br><br>                                             
 🤝 insta : @woojjus2,<br><br>
 📧 mail : wooju.developer@gmail.com,<br><br>
